@@ -1,0 +1,1 @@
+YUNO cardnews image assets
